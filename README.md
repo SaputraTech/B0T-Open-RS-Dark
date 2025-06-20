@@ -1,1 +1,1 @@
-# B0T-Open-RS-Dark
+🎉 Your configuration has been successfully !
